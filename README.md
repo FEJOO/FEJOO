@@ -2,7 +2,7 @@ Hi i am Mohammed Fajer Rafeeque.I am from kerala and i have completed my degree 
 I am interested in Coding,food and music
 I am currently persuing web development course from udemy.
 I am looking to collaborate with good companies and great teammates to work. 
-You can contact me through mail:mohammedfajerrafeeque@gmail.com or whatssapp:+91 7025415521.
+You can contact me through mail:mohammedfajerrafeeque@gmail.com or whatsapp:+91 7025415521.
 I can speak English, malayalam, tamil and little bit Hindi.
 
 <!---
